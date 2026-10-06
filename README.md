@@ -1,0 +1,2 @@
+# premium-onyx-bowl-001-onyx-bowl-turning-core-drill
+Tired of juggling separate notebooks and spreadsheets for your onyx bowl turning and core drill projects? The Onyx Bowl Turning &amp; Core Drill Craft Lab unifies both crafts into one organized Notion workspace, so you never lose a measurement or milestone again.  This template eliminates the chaos of managing two distinct but related crafts by providi
